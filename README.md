@@ -1,4 +1,4 @@
-# Hi there, I'm Jesus LLica - [Mizterfrek][website]
+# Hi there, I'm Jesus Llica - [Mizterfrek][website]
 
 ## I'm a Software Developer and Engineering Student  
 
